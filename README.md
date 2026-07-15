@@ -1,1 +1,0 @@
-# Star-Navigator-Cruise-Ishigaki-Travel
